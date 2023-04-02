@@ -42,7 +42,7 @@ Lake Lanier is a reservoir encompassing approximately 38,000 acres, including 59
       
         
   
-Showing strong, more than 100 GSDF Soldiers participated in Lake Lanier SAREX. GSDF Soldiers included those from 1st Brigade, 76th Support Brigade, the Chaplain Corps, and the Public Affairs Office.<
+Showing strong, more than 100 GSDF Soldiers participated in Lake Lanier SAREX. GSDF Soldiers included those from 1st Brigade, 76th Support Brigade, the Chaplain Corps, and the Public Affairs Office.
 
 So as to more realistically portray an actual emergency, SAREX planners kept detailed tactical information close to the vest until just hours before the Mission began. As planned, they issued an emergency alert that prompted GSDF and CAP teams to spring into action. Teams boarded a boat en-route to the simulated crash scene. Landing lakeside, they quickly debarked, rallying for operations that involved victim role-players in need of medical attention. In addition to boots on the ground, the CAP took to the sky, taking aerial surveillance photographs of the site.
 
